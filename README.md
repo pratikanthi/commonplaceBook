@@ -10,7 +10,7 @@ Morality is a grey area.
 
 ### On Money
 
-Money is an amazing thing, it enables people to put their time in ideas that don't have a short-term value. Money buys you freedom, however people sell their freedom to make money they don't need. {Ryan Holiday - Impact Theory}
+Money is an amazing thing, it enables people to put their time in ideas that don't have a short-term value. Money buys you freedom, however people sell their freedom to make money. {Ryan Holiday - Impact Theory}
 
 
 ### On Decisions and Thinking
@@ -21,3 +21,6 @@ How would an impartial person think about this?
 
 While humans act impulsively on many things - the ability to think between a stimulus and your response to it is rare, a competitive edge over your peers in daily life. 
 
+Let the truth make decisions instead of your ego.
+
+When people say you're wrong, they're almost always right but when they explain why you're wrong, they're almost always wrong. However when you ignore them and do it anyway and it turns out right, you've learned a dangerous lesson.
