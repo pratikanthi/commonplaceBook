@@ -37,4 +37,4 @@ Pat came his reply, with a smile “It’s uncomfortable”
 I was puzzled with his response, and enquired why - “One thing I have learnt is that we have to wake up everyday and do something that is extremely hard in the market - if we do the easy stuff, we will not create any value.
 It’s an uncomfortable situation, dealing with new and difficult things. But that’s exactly why clients come to us - because we have got so good at solving hard problems and creating value. We thrive in the uncomfortable.”
 It’s incredible, but your life is just like a startup - especially when you’re young. Applying the same logic to personal growth yields exactly the same results - always challenge yourself to do difficult things.
-To grow, you must thrive in the discomfort of doing difficult things.
+To grow, you must thrive in the discomfort of doing difficult things. {Aviral Bhatnagar - Quora}
